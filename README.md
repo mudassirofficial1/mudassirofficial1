@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mudassirofficial1&label=Profile%20views&color=0e75b6&style=flat" alt="mudassirofficial1" /> </p>
 
-- 📫 How to reach me **mk0565042@gmail.com**
+- 📫 How to reach me **mudassirhasan525@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LVtUAAstSMeGRDnlbCJyxJjQk2fuid6g/view?usp=sharing](https://drive.google.com/file/d/1LVtUAAstSMeGRDnlbCJyxJjQk2fuid6g/view?usp=sharing)
 
