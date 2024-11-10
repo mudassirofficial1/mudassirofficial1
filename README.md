@@ -9,7 +9,6 @@
 - 📫 How to reach me **mudassirhasan525@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1tj_2Bmy41A0uqGfob1xRYXRN3s3Muqjs/view]
-- (https://drive.google.com/file/d/1tj_2Bmy41A0uqGfob1xRYXRN3s3Muqjs/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
